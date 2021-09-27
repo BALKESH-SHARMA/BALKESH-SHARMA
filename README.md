@@ -7,5 +7,3 @@
 - [TWITTER](https://twitter.com/imbalkesh?s=09)   
 [LINKEDIN](https://www.linkedin.com/in/balkesh-sharma-029819213)   
 - 😄 Pronouns: ... HIndu/Sher    
-- ⚡ Fun fact: ... doing DSA hehe...
--->
