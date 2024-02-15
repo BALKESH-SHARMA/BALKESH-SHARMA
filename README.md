@@ -5,5 +5,4 @@
 - 💬 Ask me about ... anything     
 - 📫 How to reach me: ...    
 - [TWITTER](https://twitter.com/imbalkesh?s=09)   
-[LINKEDIN](https://www.linkedin.com/in/balkesh-sharma-029819213)   
-- 😄 Pronouns: ... Hindu/Sher    
+[LINKEDIN](https://www.linkedin.com/in/balkesh-sharma-029819213)    
